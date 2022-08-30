@@ -1,1 +1,1 @@
-Shareef loves ALX. God bless ALX!
+I love ALX. God bless ALX!
